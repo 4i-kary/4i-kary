@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @4i-kary
+- 👀 I’m interested in scripting
+- 🌱 I’m currently learning lua
