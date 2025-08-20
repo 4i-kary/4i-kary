@@ -5,4 +5,4 @@ I'm a.
 - kinda a femboy
 - uhhh idk
 more at
-https://kitland.carrd/
+https://kitland.carrd.co/
