@@ -1,3 +1,8 @@
-- 👋 Hi, I’m @4i-kary
-- 👀 I’m interested in scripting
-- 🌱 I’m currently learning lua
+Yo!!!, Kitmme here. hi to checking this
+
+I'm a.
+- Luau scripter
+- kinda a femboy
+- uhhh idk
+more at
+https://kitland.carrd/
